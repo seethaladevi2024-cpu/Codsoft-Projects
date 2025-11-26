@@ -124,6 +124,6 @@ This project is open-source and available under the **MIT License**.
 ## 💬 Contact  
 For questions or suggestions:
 
-**Your Name**  
-📩 Email: your-email@example.com  
-🌐 Portfolio: your-portfolio-link  
+**SEETHALADEVI S**  
+📩 Email: seethaladevi2024@gmail.com 
+ 
